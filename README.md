@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @Kim-Dong-Woo-exem
-- 👀 I’m interested in going home
+- 👀 wkd1994@ex-em.com
